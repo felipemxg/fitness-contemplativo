@@ -1,0 +1,3 @@
+# Diluindo o Dharma
+
+Essas pessoas sabem que terminaram; eles chegaram ao fim de buscar. Embora possam continuar a meditar com grande entusiasmo e continuar a aprofundar e refinar aspectos importantes de sua compreensão ao longo de suas vidas, eles não sentem que há nada que precisem fazer em relação ao seu próprio despertar. Isso está em marcante contraste com o meditador pré-arahat, que tende a ser obcecado pela meditação e pelo progresso. Tão importante quanto, o modelo pragmático arahat é capaz de ver a experiência como um processo. Não há uma sensação duradoura de identidade no centro da experiência. O ideal budista de percepção do não-eu foi completamente realizado e integrado.
