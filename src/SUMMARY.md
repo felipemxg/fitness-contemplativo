@@ -1,5 +1,7 @@
 # Conteúdo
 
+[Fitness Contemplativo](./fitness-contemplativo.md)
+
 - [Introdução](./introducao.md)
     - [A Revolução da Aptidão Física](./a-revolucao-da-aptidao-fisica.md)
 
